@@ -1,2 +1,2 @@
 # Final-Horizon
-This is a art project I made for class.
+Im Johnnie Lewis, and this is a art project I made for class.
